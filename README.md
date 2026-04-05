@@ -3,6 +3,9 @@
 
  # Heya! Roubl3Drawws, Roubl3 or Rouble. Links and stuff in desc
 
+  # PT:
+### Most of the time just sitting and watching / offtab, so feel free to c+h!
+
  # FANDOMS :
  ## Roblox:
  * Grace
@@ -24,10 +27,17 @@
 * Glaggleland
 * ...
 
+# MUSIC!
+* MSI
+* And One
+* Alex G
+* Lapfox
+* Mother Mother
+* ...
+
+  
 ### This readme SUCKS
 
- # PT:
-### Most of the time just sitting and watching / offtab, so feel free to c+h!
 
 
 
