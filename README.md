@@ -1,5 +1,8 @@
-## How what thr what is this
+# Heya! Roubl3Drawws, Roubl3 or Rouble.
 
+Thats for those who actually look at my profile and want to know somethging about me,,
+
+wait
 <!--
 **CallMeRouble/CallMeRouble** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
