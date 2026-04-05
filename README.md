@@ -1,10 +1,17 @@
 ![Alt text](https://images.steamusercontent.com/ugc/16090345030633628535/91D460059C3548FDF46DB3F3FC35A0580DABAC7E/)
 
 
-# Heya! Roubl3Drawws, Roubl3 or Rouble.
+ # Heya! Roubl3Drawws, Roubl3 or Rouble.
+### She/Her
+### RUS/ENG
+### I draw
 
-### PT:
+### This readme SUCKS
+
+ # PT:
 ### Most of the time just sitting and watching / offtab, so feel free to c+h!
+
+
 
 <!--
 **CallMeRouble/CallMeRouble** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
