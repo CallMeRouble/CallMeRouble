@@ -4,7 +4,7 @@
  # Heya! Roubl3Drawws, Roubl3 or Rouble. Links and stuff in desc
 
   # PT:
-### Most of the time just sitting and watching / offtab, so feel free to c+h!
+### Most of the time just sitting and watching / offtab / playing, so feel free to c+h!
 
  # FANDOMS :
  ## Roblox:
