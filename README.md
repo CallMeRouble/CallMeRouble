@@ -17,7 +17,7 @@
  * ...
 
 ## OTHER
-* Rain World
+* Rain World (*especially modding! my main project is RWJR*)
 * Pizza Tower
 * Buster JAM
 * Hollow Knight & HKS
