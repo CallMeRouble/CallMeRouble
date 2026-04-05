@@ -1,10 +1,28 @@
 ![Alt text](https://images.steamusercontent.com/ugc/16090345030633628535/91D460059C3548FDF46DB3F3FC35A0580DABAC7E/)
 
 
- # Heya! Roubl3Drawws, Roubl3 or Rouble.
-### She/Her
-### RUS/ENG
-### I draw
+ # Heya! Roubl3Drawws, Roubl3 or Rouble. Links and stuff in desc
+
+ # FANDOMS :
+ ## Roblox:
+ * Grace
+ * Enfosi
+ * Block Tales
+ * PHIGHTING!
+ * Die of death kinda?..
+ * Pressure
+ * ...
+
+## OTHER
+* Rain World
+* Pizza Tower
+* Buster JAM
+* Hollow Knight & HKS
+* Slime Rancher
+* Cult of the Lamb
+* JSAB (+ TPC)
+* Glaggleland
+* ...
 
 ### This readme SUCKS
 
