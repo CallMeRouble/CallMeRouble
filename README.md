@@ -8,12 +8,12 @@
 
  # FANDOMS :
  ## Roblox:
- * Grace
+ * ~~Gr~~ace (same as with pressure, but not sure tho...)
  * Enfosi
  * Block Tales
  * PHIGHTING!
- * Die of death kinda?..
- * Pressure
+ * Die of Death
+ * ~~Pressure~~ (idk how to feel about it after situation?)
  * ...
 
 ## OTHER
