@@ -1,6 +1,6 @@
 ![Alt text](https://images.steamusercontent.com/ugc/16090345030633628535/91D460059C3548FDF46DB3F3FC35A0580DABAC7E/)
 
-spam follow accs dni
+spam follow accs dni, only follow if you actually find me interesting👀👀..
 
  # Heya! Roubl3Drawws, Roubl3 or Rouble. Links and stuff in desc
 
