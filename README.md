@@ -27,6 +27,7 @@ spam follow accs recommended to dni, only follow if you actually find me interes
 * Cult of the Lamb
 * JSAB (+ TPC)
 * Glaggleland
+* Ultrakill
 * ...
 
 # MUSIC!
