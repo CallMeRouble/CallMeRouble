@@ -42,7 +42,7 @@ spam follow accs recommended to dni, only follow if you actually find me interes
 ### This readme SUCKS
 
 
-
+![Alt text](https://images.steamusercontent.com/ugc/9419636990608595356/33B9806711C780DF63B0EE8993B2CB7C922DC6F4/)
 
 <!--
 **CallMeRouble/CallMeRouble** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
