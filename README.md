@@ -6,7 +6,7 @@ spam follow accs recommended to dni, only follow if you actually find me interes
 
   # PT:
 ### Most of the time just sitting and watching / offtab / <ins>drawing(in most cases)</ins>, so feel free to c+h!
-### ADDITION: YES i read everything you whisper to me! I appreciate those compliments you send to me! Don't be offended if I haven't responded, Im just not very talkative,,
+### ADDITION: If you have something to tell me, WHISPERRRR. I RARELY read local chat. I appreciate those compliments you send to me! Don't be offended if I haven't responded, Im just not very talkative,,
 
  # FANDOMS :
  ## Roblox:
