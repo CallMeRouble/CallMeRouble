@@ -31,11 +31,11 @@ spam follow accs recommended to dni, only follow if you actually find me interes
 * Ultrakill
 * ...
 
-# MUSIC!
+# Music!
 * MSI
 * And One
 * Alex G
-* Lapfox
+* Lapfox / Halley labs
 * Mother Mother
 * ...
 
