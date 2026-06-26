@@ -37,6 +37,8 @@ spam follow accs recommended to dni, only follow if you actually find me interes
 * Alex G
 * Lapfox / Halley labs
 * Mother Mother
+* femtanyl
+* goreshit
 * ...
 
   
