@@ -1,14 +1,18 @@
-![Alt text](https://images.steamusercontent.com/ugc/16090345030633628535/91D460059C3548FDF46DB3F3FC35A0580DABAC7E/)
+_this will be cleaned and decorated later_
 
-spam follow accs recommended to dni, only follow if you actually find me interesting👀👀..
+_. . .spam follow accs recommended to dni, only follow if you actually find me interesting👀👀.._
 
- # Heya! Roubl3Drawws, Roubl3 or Rouble. Links and stuff in desc
+<h1> . . .Roubl3Drawws, Roubl3 or Rouble. Links and stuff in desc </h1>
 
-  # PT:
-### Most of the time just sitting and watching / offtab / <ins>drawing(in most cases)</ins>, so feel free to c+h!
-### ADDITION: If you have something to tell me, WHISPERRRR. I RARELY read local chat. I appreciate those compliments you send to me! Don't be offended if I haven't responded, Im just not very talkative,,
+  # . . .PT:
+_Most of the time just sitting and watching / offtab / <ins>drawing(in most cases)</ins>, so feel free to c+h!_
 
- # FANDOMS :
+_ADDITION: If you have something to tell me, WHISPERRRR. I RARELY read local chat. I appreciate those compliments you send to me! Don't be offended if I haven't responded, Im just not very talkative,,_
+
+<details>
+ 
+<summary><h1>. . .FANDOMS</h1></summary> 
+  
  ## Roblox:
  * ~~Gr~~ace (same as with pressure, but not sure tho...)
  * Enfosi
@@ -31,18 +35,17 @@ spam follow accs recommended to dni, only follow if you actually find me interes
 * Ultrakill
 * ...
 
-# Music!
+</details>
+<details>
+<summary><h1>. . .MUSIC</h1></summary>
+
 * MSI
 * And One
-* Alex G
 * Lapfox / Halley labs
-* Mother Mother
 * femtanyl
-* goreshit
 * ...
 
-  
-### This readme SUCKS
+</details>
 
 
 ![Alt text](https://images.steamusercontent.com/ugc/9419636990608595356/33B9806711C780DF63B0EE8993B2CB7C922DC6F4/)
