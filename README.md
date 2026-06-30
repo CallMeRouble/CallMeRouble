@@ -44,7 +44,7 @@ _ADDITION: If you have something to tell me, WHISPERRRR. I RARELY read local cha
 
 
 
-![Alt text](https://images.steamusercontent.com/ugc/9419636990608595356/33B9806711C780DF63B0EE8993B2CB7C922DC6F4/)
+![Alt](https://media1.tenor.com/m/YDkN7E5P7NwAAAAd/tweaking-earthmover.gif)
 
 <!--
 **CallMeRouble/CallMeRouble** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
