@@ -43,8 +43,7 @@ _ADDITION: If you have something to tell me, WHISPERRRR. I RARELY read local cha
 * ...
 
 
-
-![Alt](https://media1.tenor.com/m/YDkN7E5P7NwAAAAd/tweaking-earthmover.gif)
+![Alt](https://media1.tenor.com/m/YDkN7E5P7NwAAAAd/tweaking-earthmover.gif)    _**<  --------------     He listened to this shit!!!!!!!**_
 
 <!--
 **CallMeRouble/CallMeRouble** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
