@@ -4,14 +4,14 @@ _. . .spam follow accs recommended to dni, only follow if you actually find me i
 
 ![Alt](https://images.steamusercontent.com/ugc/12550485455920517636/CC7D9667B791C01930C143BDB8ED0BDC26C879A6/)
 
-  # . . .PT:
+![Alt](https://images.steamusercontent.com/ugc/14145140392173965261/D800F1E208B6565ABEF891C79A9F85E264F3A504/)
+
 _Most of the time just sitting and watching / offtab / <ins>drawing(in most cases)</ins>, so feel free to c+h!_
 
 _ADDITION: If you have something to tell me, WHISPERRRR. I RARELY read local chat. I appreciate those compliments you send to me! Don't be offended if I haven't responded, Im just not very talkative,,_
 
-<details>
- 
-<summary><h1>. . .FANDOMS</h1></summary> 
+
+![Alt](https://images.steamusercontent.com/ugc/18166176229305577695/04BFAE0580230739902DF72AB2391C1924D9885F/)
   
  ## Roblox:
  * ~~Gr~~ace (same as with pressure, but not sure tho...)
@@ -35,17 +35,13 @@ _ADDITION: If you have something to tell me, WHISPERRRR. I RARELY read local cha
 * Ultrakill
 * ...
 
-</details>
-<details>
-<summary><h1>. . .MUSIC</h1></summary>
-
+![Alt](https://images.steamusercontent.com/ugc/12282048972679555897/03606B82B4883E0EEF2C636CE271CB8E6F7EBDA7/)
 * MSI
 * And One
 * Lapfox / Halley labs
 * femtanyl
 * ...
 
-</details>
 
 
 ![Alt text](https://images.steamusercontent.com/ugc/9419636990608595356/33B9806711C780DF63B0EE8993B2CB7C922DC6F4/)
