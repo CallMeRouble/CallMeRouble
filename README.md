@@ -40,6 +40,7 @@ _ADDITION: If you have something to tell me, WHISPERRRR. I RARELY read local cha
 * And One
 * Lapfox / Halley labs
 * femtanyl
+* goreshit
 * ...
 
 
