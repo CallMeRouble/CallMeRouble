@@ -8,7 +8,8 @@ _. . .spam follow accs recommended to dni, only follow if you actually find me i
 
 _Most of the time just sitting and watching / offtab / <ins>drawing(in most cases cuz its artfight month ok..)</ins>, so feel free to c+h!_
 
-_ADDITION: If you have something to tell me, WHISPERRRR. I RARELY read local chat. I appreciate those compliments you send to me! Don't be offended if I haven't responded, Im just not very talkative,,_
+_ADDITION 1: If you have something to tell me, WHISPERRRR. I RARELY read local chat. I appreciate those compliments you send to me! Don't be offended if I haven't responded, Im just not very talkative,,_
+_ADDITION 2: It's better to not rp with me or sum. Just sit near and continue doing your thing.
 
 
 ![Alt](https://images.steamusercontent.com/ugc/18166176229305577695/04BFAE0580230739902DF72AB2391C1924D9885F/)
