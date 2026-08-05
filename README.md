@@ -23,6 +23,7 @@ _ADDITION 2: It's better to not rp with me or sum. Just sit near and continue do
  * Die of Death
  * ~~Pressure~~ (idk how to feel about it after situation?)
  * Combat Initiation
+ * The Battle Bricks
  * ...
 
 ## OTHER
