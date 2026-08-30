@@ -1,3 +1,4 @@
+![Alt](https://images.steamusercontent.com/ugc/18223772437554319887/FA664F08233C860F49D38B9292CA27C2B94D1271/)
 _this will be cleaned and decorated later_
 
 _. . .spam follow accs recommended to dni, only follow if you actually find me interesting👀👀.._
