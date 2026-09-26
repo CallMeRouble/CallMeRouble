@@ -25,7 +25,7 @@ _ADDITION 2: It's better to not rp with me or sum. Just sit near and continue do
  * ...
 
 ## OTHER
-* Rain World (*especially modding! my main project is RWJR*)
+* Rain World
 * Pizza Tower
 * Buster JAM
 * Hollow Knight & HKS
@@ -46,7 +46,9 @@ _ADDITION 2: It's better to not rp with me or sum. Just sit near and continue do
 * ...
 
 
-![Alt](https://media1.tenor.com/m/YDkN7E5P7NwAAAAd/tweaking-earthmover.gif)    _**<  --------------     He listened to this shit!!!!!!!**_
+the sona of wisdom
+<img align="right" src="https://images.steamusercontent.com/ugc/16182256155042657005/90174D32928F1F67B0F130DFEBE828892E6A4AB2/"/> 
+                                                                                                                                                                                             
 
 <!--
 **CallMeRouble/CallMeRouble** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
