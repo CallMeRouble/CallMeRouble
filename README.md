@@ -46,7 +46,7 @@ _ADDITION 2: It's better to not rp with me or sum. Just sit near and continue do
 * ...
 
 
-the sona of wisdom
+# _the sona of wisdom_
 <img align="right" src="https://images.steamusercontent.com/ugc/16182256155042657005/90174D32928F1F67B0F130DFEBE828892E6A4AB2/"/> 
                                                                                                                                                                                              
 
