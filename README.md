@@ -36,11 +36,10 @@ _ADDITION 2: It's better to not rp with me or sum. Just sit near and continue do
 * Ultrakill
 * ...
 
-![Alt](https://images.steamusercontent.com/ugc/12282048972679555897/03606B82B4883E0EEF2C636CE271CB8E6F7EBDA7/)
+![Alt](https://images.steamusercontent.com/ugc/16430982336944304712/0F96EDAD3010D091D68116ECEC5CEDE2A7FB9FB2/)
 * MSI
 * And One
 * Lapfox / Halley labs
-* femtanyl
 * goreshit
 * Lemon demon
 * ...
