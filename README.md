@@ -4,7 +4,7 @@
 
 ![Alt](https://images.steamusercontent.com/ugc/14145140392173965261/D800F1E208B6565ABEF891C79A9F85E264F3A504/)
 
-_Most of the time just sitting and watching / offtab / <ins>drawing(in most cases)</ins>, so feel free to c+h!_
+_Most of the time just sitting and watching / waiting for my friends / offtab / <ins>drawing(in most cases)</ins>, so feel free to c+h!_
 
 _ADDITION 1: If you have something to tell me, WHISPERRRR. I RARELY read local chat. I appreciate those compliments you send to me! Don't be offended if I haven't responded, Im just not very talkative,,_
 
