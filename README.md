@@ -1,4 +1,4 @@
-wait i'll redraw that one
+![Alt](https://images.steamusercontent.com/ugc/13214960320567372362/71D3F678A1F22C96B8C4682118C099B1A0F8182F/)
 
 ![Alt](https://images.steamusercontent.com/ugc/12550485455920517636/CC7D9667B791C01930C143BDB8ED0BDC26C879A6/)
 
